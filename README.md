@@ -1,4 +1,4 @@
-# Hi there 👋 I'm CuervoXD
+# Hi there 👋 Soy David Cuervo
 
 ## 🎵 Apasionado por la Música y el Código 💻
 
